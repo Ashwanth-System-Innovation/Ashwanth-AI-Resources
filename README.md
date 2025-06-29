@@ -1,3 +1,5 @@
+https://github.com/user-attachments/assets/915adf5a-b5bf-4cd8-ab84-ca5586013527 
+
 # Ashwanth-AI-Resources
 
 🔰 Basic Channels (for beginners)
